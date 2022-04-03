@@ -1,2 +1,0 @@
-# Ali Hassan
-Motion Designer
